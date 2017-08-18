@@ -1,2 +1,2 @@
 # zinfandelcap
-Zinfandel Capital invests in established small businesses
+Zinfandel Capital takes controlling ownership in established small businesses
